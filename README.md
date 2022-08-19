@@ -10,4 +10,4 @@ Nos primeiros dias eu tive um problema com o Linux, em que perdi um total de 10 
 
 Deus sempre esteve no comando e reserva o melhor para a minha eternidade espiritual. 
 
-Obrigado.
+Obrigado Deus.
